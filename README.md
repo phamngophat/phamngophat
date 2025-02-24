@@ -19,6 +19,6 @@
 ## 📫 How to Reach Me  
 - 🔗 **GitHub:** [github.com/phamngophat](https://github.com/phamngophat)  
 - 📧 **Email:** ngo11062005@gmail.com  
-- 💼 **LinkedIn:** [Your LinkedIn] (if available)  
+- 💼 **LinkedIn:** [linkedin.com/ngô-phát-phạm].(https://www.linkedin.com/in/ng%C3%B4-ph%C3%A1t-ph%E1%BA%A1m-409803325/?trk=opento_sprofile_topcard)
 - 📘 **Facebook:** Phạm Ngô Phát  
 - 📱 **Mobile:** (+84) 344 012 900  
